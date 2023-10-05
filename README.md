@@ -1,5 +1,5 @@
 - 👋 Hi, We are Stratefix.
-- 🏦 WE ARE BECAUSE WE IMPLEMENT - For SMEs who direly needs help in managing their businesses. Stratefix Consulting is a business consulting organisation with a team of executional experts. Unlike traditional consultants who limits to advisory, Stratefix ensures holistic business strategy implementation through physical presence, strong handholding approach and outcome gurantee base fee.
+- 🏦 WE ARE BECAUSE WE IMPLEMENT - For SMEs who direly needs help in managing their businesses. Stratefix Consulting is a business consulting organisation with a team of executional experts. Unlike traditional consultants who limits to advisory, Stratefix ensures holistic business strategy implementation through physical presence, strong handholding approach and outcome guarantee base fee.
 - **STRATE**gy + **FI**xing + e**X**ponential growth = **STRATEFIX**
 
 <!---
